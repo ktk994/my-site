@@ -1,0 +1,1 @@
+There are 6 infinity stones. They are time stone, space stone, power stone, soul stone and reality stone. Thanos, Hulk and Iron-man were the only ones who had all 6 stones with them.
